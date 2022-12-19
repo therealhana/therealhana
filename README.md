@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning Polish, English, Korean, German, Spanish
 - 💞️ I’m looking to collaborate on Discord, Instagram
 - 📫 How to reach me: dm me and check my instagram: hania25089
+- 🎶 I listen to Kpop, Classical, Phonk, Rap, R&B and Alternative
 
 <!---
 therealhana/therealhana is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
